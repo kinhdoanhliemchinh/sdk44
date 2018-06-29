@@ -1,0 +1,2 @@
+Thoái hóa đốt sống cổ là một trong những bệnh lý về xương khớp khiến bệnh nhân gặp nhiều hạn chế trong vận động, thậm chí có thể bị bại liệt nếu không được điều trị kịp thời và đúng cách. 
+https://chuabenhkhoptambinh.wordpress.com/2018/06/29/thoai-hoa-dot-song-co-la-mot-trong-nhung-benh-ly-ve-xuong-khop-khien-benh-nhan-gap-nhieu-han-che-trong-van-dong-tham-chi-co-the-bi-bai-liet-neu-khong-duoc-dieu-tri-kip-thoi-va-dung-cach-6/
